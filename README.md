@@ -12,16 +12,21 @@ Mehr auf: s27.de/portfolio/pandharmonium
 
 
 Künstlerische & technische Leitung
-Manuel Strube
+
+    Manuel Strube
 
 Web-Entwicklung & Interfacedesign
-Andreas Rau
+
+    Andreas Rau
 
 Konzept, Realisation, Dokumentation
-Luis Krummenacher
+
+    Luis Krummenacher
 
 Ein Projekt der
-S27 – Kunst und Bildung
+
+
+    S27 – Kunst und Bildung
 
 
 
