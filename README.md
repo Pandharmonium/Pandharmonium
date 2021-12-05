@@ -27,22 +27,22 @@ S27 – Kunst und Bildung
 
 In Kooperation mit
   
-  Glashaus Prenzlau
-
-  Selbstgebaute Musik
+    Glashaus Prenzlau
   
-  Haus der Statistik
+    Selbstgebaute Musik
+  
+    Haus der Statistik
 
-  Happy Locals
+    Happy Locals
 
 
 
 Gefördert durch
   
-  Fonds Soziokultur
+    Fonds Soziokultur
 
-  Neustart Kultur
+    Neustart Kultur
 
-  BKM
+    BKM
 
-  Senatsverwaltung für Bildung, Jugend und Familie
+    Senatsverwaltung für Bildung, Jugend und Familie
